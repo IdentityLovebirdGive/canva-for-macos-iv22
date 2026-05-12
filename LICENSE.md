@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Photo for macOS with Affinity Photo for macOS best Action - AI-assisted design and masking tools, the #1 action. Includes AI-assisted design and masking tools for
 
 
 
